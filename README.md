@@ -12,10 +12,10 @@ Budd joined a group of Congressmen in asking the International Trade Commission 
 
 Budd sits on these subcommittees:
 
-Housing and Insurance
+1. Housing and Insurance
 
-Terrorism and Illicit Finance
+2. Terrorism and Illicit Finance
 
-Capital Markets, Securities and Investments
+3. Capital Markets, Securities and Investments
 
 He supports President Trump’s plan to build a wall along the Mexico border and is in favor of repealing the Affordable Care Act.
